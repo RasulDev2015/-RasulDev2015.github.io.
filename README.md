@@ -1,1 +1,1 @@
-# rasulqasimov.github.io
+# rasul-website
